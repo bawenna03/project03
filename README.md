@@ -1,3 +1,3 @@
 # project03
 
-My primary strength
+Jingwen Yu: My primary strength is to finish things on time.
